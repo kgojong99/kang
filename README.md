@@ -36,3 +36,7 @@
 _기울인다_
 
 [에이핑크](https://youtu.be/09F9GuFUiCo)
+
+
+
+[동영상](https://youtu.be/09F9GuFUiCo) ![사진](http://cfile6.uf.tistory.com/image/241D1F505557419D1B39B6)
